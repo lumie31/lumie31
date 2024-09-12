@@ -1,4 +1,4 @@
-# Hi there, I'm Olumide! 👋
+# Hey there, I'm Olumide! 👋
 
 ## About Me 🚀
 
